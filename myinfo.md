@@ -1,3 +1,3 @@
-helo i am aishmita
+ i am aishmita
 bscs
 kingcolege
